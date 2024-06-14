@@ -17,7 +17,7 @@ Inconsistent or incorrect data entry, causing a burden on the faculty/staff.
 
 Financial issues before every event:
 With every semester our department would face financial issues including budgets.
-We had a budget of $500 for more than 300 students and we had to fit into this budget.
+We had a budget of $1500 for more than 300 students and we had to fit into this budget.
 It was really a big deal breaker to have count of students to prepare our inventory.
 
 **Business Solutions Implemented**
